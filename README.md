@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @NusserAlexander1
+- 👋 Hi, I’m NusserAlexander
 - 👀 I’m interested in Undertale
 - 🌱 I’m currently learning IT
 - 💞️ I’m looking to collaborate with sans
